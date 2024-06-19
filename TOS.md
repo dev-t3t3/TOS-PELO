@@ -1,4 +1,4 @@
-# TOS-PELO
+# TOS-ProMine
 1️⃣ Respect for everyone, if you are ranked as a 'big-small' server and 'members' as well, otherwise you will be punished.
  
 2️⃣ Not publishing inappropriate pornographic images, which is a penalty.
